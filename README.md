@@ -1,0 +1,1 @@
+# Gokuuulll-DABM-Experiment-03-Regression-Techniques-in-Business-Data-Simple-Linear-Regression
